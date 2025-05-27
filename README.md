@@ -1,0 +1,1 @@
+# Actividad-de-aprendizaje-Aplicaci-n-del-An-lisis-Discriminante-Lineal-en-un-Problema-Real-
